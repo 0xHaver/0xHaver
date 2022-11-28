@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @0xHaver
+- 👀 I’m interested in doing exactly what I want
+- 🌱 I’m currently learning how to create
+- 💞️ I’m looking to collaborate on everything
+- 📫 How to reach me: don't
